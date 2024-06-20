@@ -1,0 +1,1 @@
+# eset-nod32-activation-by-miaz
